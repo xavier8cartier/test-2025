@@ -1,2 +1,2 @@
 # test-2025
-Repositoorium GitHubi testimiseks. 
+Repositoorium GitHubi testimiseks uus whoa.
